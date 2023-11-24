@@ -1,26 +1,26 @@
 # Aunt Pat's Calico Beans (15m prep, 4-8 hours cooking)
 
-  1 pound ground beef
-1/2 pound bacon diced
-  1 medium onion chopped
-  2 (16 ounce) cans pork and beans drained
-  1 (15 ounce) can kidney beans drained and rinsed
-  1 (15 ounce) can butter beans drained and rinsed (aka lima beans)
-  3/4 cup brown sugar
-  3/4 cup ketchup
-  2 teaspoons white vinegar
-  1 teaspoon Worsterchire sauce
-  1 teaspoon yellow mustard
-  Salt (to taste)
+*  1 pound ground beef
+*  1/2 pound bacon diced
+*  1 medium onion chopped
+*  2 (16 ounce) cans pork and beans drained
+*  1 (15 ounce) can kidney beans drained and rinsed
+*  1 (15 ounce) can butter beans drained and rinsed (aka lima beans)
+*  3/4 cup brown sugar
+*  3/4 cup ketchup
+*  2 teaspoons white vinegar
+*  1 teaspoon Worsterchire sauce
+*  1 teaspoon yellow mustard
+*  Salt (to taste)
 
 ## Molasses Variant
 I like a little molasses and pull out some ketchup + brown sugar to compensate. Experiment if you have molasses.
 
 ## Vegan Variant
-Replace 1 pound ground beef with 1 pound Impossible meat (beyond meat is less ideal but fine)
-Replace 1/2 pound of bacon with 1/2 pound ofeither vegan bacon or
-Replace Worsterchire sauce with Pickapeppa Sauce (or other smoky/tangy vegan option)
-Replace pork and beans with vegan baked beans
+* Replace 1 pound ground beef with 1 pound Impossible meat (beyond meat is less ideal but fine)
+* Replace 1/2 pound of bacon with 1/2 pound ofeither vegan bacon or
+* Replace Worsterchire sauce with Pickapeppa Sauce (or other smoky/tangy vegan option)
+* Replace pork and beans with vegan baked beans
 
 ## Other variants
 

@@ -1,13 +1,13 @@
 # Mom's Turkey Dressing
 
-1 bag dried bread cubes (2 loaves of bread cubed adnd dried)
-1 celery stalk
-2 white onions
-1/2 cup wild rice
+* 1 bag dried bread cubes (2 loaves of bread cubed adnd dried)
+* 1 celery stalk
+* 2 white onions
+* 1/2 cup wild rice
 
-2Tb butter
-1Tb chicken boullion or 2 cups of broth
-2Tb sage (plus dash later)
+* 2Tb butter
+* 1Tb chicken boullion or 2 cups of broth
+* 2Tb sage (plus dash later)
 
 Day Before
 
