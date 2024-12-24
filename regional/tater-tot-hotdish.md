@@ -22,7 +22,7 @@
   * Heat oil in a 12-inch cast-iron skillet over medium heat. Sauté onions and garlic with salt and pepper until soft.
   * Add vegan sausage and cook until lightly browned.
   * Stir in mushrooms and cook until softened. Add sage/thyme and flour, stirring for 2 minutes.
-  * Add frozen veggies, mix well, then pour in nondairy milk. Cook until just boiling. Adjust salt and pepper.
+  * Add frozen veggies fand flour, mix well, then pour in nondairy milk. Cook until just boiling. Adjust salt and pepper.
   * **Optional: Cool**
     * Transfer the filling to a baking pan. Cover and refrigerate if preparing in advance.
     * If you take this path, the cast iron could be replaced with a non-stick skillet
